@@ -9,11 +9,11 @@ L'oeuvre *Bulle* m'interpelle beaucoup puisque c'est une oeuvre interactive qui 
 ### [Lien 1](https://map.leagueoflegends.com/) 
 Au paravent, quand je jouais beaucoup à LoL, je regardais la carte pour apprendre l'origine story des caractères est des évènements qui sont référencés dans le jeu par les personnages. Ce site pourrait me donner de l'inspiration pour créer une histoire dans les projets à venir. 
 
-### Lien 2 
-Expliquer pourquoi vous avez choisi ce lien.
+### [Lien 2](https://www.mbam.qc.ca/fr/) 
+Je suis allé au musée des arts nombreuses fois en grandissant. Soi avec mon école primaire ou just aven ma famille et même récemment l'hivers passé. Il y a tellement de façons de prendre inspiration des nombreuses expositions qui se trouve à l'intérieur. Que ce soit de la forme ou de contenue.    
 
 ### Lien 3 
-Expliquer pourquoi vous avez choisi ce lien.  
+Expliquer...
 
 ### Lien 4 
 Expliquer pourquoi vous avez choisi ce lien. 
