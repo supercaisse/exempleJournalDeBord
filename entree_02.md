@@ -12,8 +12,8 @@ Au paravent, quand je jouais beaucoup à LoL, je regardais la carte pour apprend
 ### [Lien 2](https://www.mbam.qc.ca/fr/) 
 Je suis allé au musée des arts nombreuses fois en grandissant. Soi avec mon école primaire ou just aven ma famille et même récemment l'hivers passé. Il y a tellement de façons de prendre inspiration des nombreuses expositions qui se trouve à l'intérieur. Que ce soit de la forme ou de contenue.    
 
-### Lien 3 
-Expliquer...
+### [Lien 3](https://similkameen.onf.ca/) 
+Cette oeuvre a résonné avec moi avec son contenue de racines généalogiques. Je n'ai pas vraiment l'image parfaite de tout ce qui c'est déroulé pour que je puisse exister aujourd'hui. Elle m'a donné envis de moi aussi posé des questions à ma famille pour avoir une meilleur idée de notre histoire.
 
 ### Lien 4 
 Expliquer pourquoi vous avez choisi ce lien. 
