@@ -2,19 +2,19 @@
 ## Plan de carrière
 
 ### Présentation
-Parlez de vous. 
+Parlez de vous. Pourquoi TIM? savais pas quoi faire, toujours aimé ordi(jeux) + avait un ami en tim vue quelque ses projets avait l'air intéressan, essaye de trouver dans quoi je suis intéressé généralement parlant, aime jeux compétifs (valorant main pour le moment), aime l'entraînement physique, veux faire plus d'excurtion dans la nature, quelque place que je veux voyager,
 
 ### Intérêts dans le domaine
-Parlez de vos intérêts en multimédia. 
+Web et Photoshop
 
-### Emplois qui vous intéressent
-Nommez deux emplois.
+### Emplois qui vous intéressent 2 emplois
 
+guide de l'industrie numérique
+plante emplois
 ### Identification
-Nommez une entreprise et un artiste auxquels vous vous identifiez et expliquez pourquoi. 
-
+Riot Games: jeux et lore          et   Tyler, The Creator: evolution artistique et personnelle
 ### Dans 5 ans
-Où vous voyez-vous dans 5 ans? 
+travail dans une entreprise ou université pour aprofondissement
 
 ### Projets
-Expliquez un ou des projets que vous aimeriez faire. 
+music video project, collaborer avec un artiste pour faire une vidéo 
