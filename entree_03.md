@@ -9,11 +9,9 @@ Mes intérêts principaux en TIM, et ceux dont j'ai les plus d'expérience avec,
 
 ### Emplois qui vous intéressent 2 emplois
 
+Un emplois que je prévois peut-être aimer est soit technicien pour une entrenprise. Mon rôle serait de  s'assuré le bon déroulement de tout ce qui est ordinateurs.
+Un autre type d'emplois que je peux me voir faire est photographe pour un magazine de genre National Geographic, ou est-ce que je dois aller dans certaine location pour filmer et/ou photograhier des sujets.
 
-
-REPÈRES
-guide de l'industrie numérique
-plante emplois
 ### Identification Riot Games: jeux et lore et Tyler, The Creator: evolution artistique et personnelle
 
 Pour compagnie, Riot Games est une dont j'admire beaucoup de, que ce sois leur jeux, ou juste les histoires qui resortent de ces derniers. Pendant les dernier 3 ans, je le plus joué au jeux de Riot, comment Leauge of Legends et VALORANT. J'ai aussi lue et écouter beaucoup des histoire provenant des leur jeux, notamment la série Netflix Arcane est le meilleur exemple de leur créativité. 
@@ -23,4 +21,4 @@ En temps qu'artiste, "Tyler, The Creator", pour les quatre dernières années, �
 Dans 5 ans, je me pense que je serais soit entrain de travailler pour une compagnie ou je serais à l'université pour aprofondire dans quelque chose que j'aime beaucoup.
 
 ### Projets
-music video project, collaborer avec un artiste pour faire une vidéo 
+Le seul gros projets que j'aurais en tête serait de réaliser une vidéo de musique avec un petit artiste.
