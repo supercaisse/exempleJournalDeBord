@@ -2,8 +2,7 @@
 ## Plan de carrière
 
 ### Présentation
-J'ai choisi le programme de TIM parce que j'ai toujours eu un intérêt général aux ordinateurs et 
-Parlez de vous. Pourquoi TIM? savais pas quoi faire, toujours aimé ordi(jeux) + avait un ami en tim vue quelque ses projets avait l'air intéressan, essaye de trouver dans quoi je suis intéressé généralement parlant, aime jeux compétifs (valorant main pour le moment), aime l'entraînement physique, veux faire plus d'excurtion dans la nature, quelque place que je veux voyager,
+J'aime beaucoup travailler avec les ordinateurs, même depuis l'enfance j'ai toujours eu un intétêt envers tout dans le domaine, et c'est pour ça que j'ai fini par aller en TIM. En ce moment, je ne jous pas vraiment à beaucoup de jeux comme au paravant, le seul jeux qui captive vraiment mon attention est VALORANT. L'aspect compétitif, stratégique et méchanique tu jeux est qu'est-ce qui mon attiré. À par tout ça, l'entraînement est aussi un autre chose que je suis passioné par. J'ai commencé au début de mon secondaire 5, sans vraiment avoir de consistance. Seulement récemment, j'ai peu trouvé une routine qui marche pour moi et je l'aime vraiment. De plus, dans le futur j'aimerais faire plus d'excurcion en nature et de voyager dans des pays étrangers.
 
 ### Intérêts dans le domaine
 Web et Photoshop
