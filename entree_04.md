@@ -1,5 +1,7 @@
 # Entrée 4
+
 ## Décrire 5 emplois du domaine du multimédia
+
 Développement Logiciel
 Jeux Vidéo 
 Web
@@ -20,15 +22,9 @@ plante emplois
 ### Emploi 1 - Identification 
 
 ### Emploi 2 - Identification
-4 à 5 lignes
 
 ### Emploi 3 - Identification
-4 à 5 lignes 
 
 ### Emploi 4 - Identification
-4 à 5 lignes
 
 ### Emploi 5 - Identification
-4 à 5 lignes
-
-
