@@ -21,7 +21,7 @@ plante emplois
 
 Écrire 4 à 5 lignes. Parler des tâches reliées à l'emploi. Expliquer où ces personnes travaillent. Décrire les qualités requises pour pratiquer ce métier. Un point qui vous intéresse dans ce métier. Un point qui rend ce métier moins intéressant pour vous.  
 
-### Emploi 1 - Identification 
+### Emploi 1 - [Développeur Web Back-End](https://swoo.ca/emplois/developpeur-backend)
 
 ### Emploi 2 - Identification
 
