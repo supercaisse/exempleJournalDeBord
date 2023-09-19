@@ -12,6 +12,8 @@ Montage Vidéo
 
 Ubisoft/Epic Games/Warner Brother/EA/Eidos/Larian/Bethesda
 
+Hybride/RodeoFx/Moment Factory
+
 linked in
 REPÈRES
 guide de l'industrie numérique
